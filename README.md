@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Pcheell.github.io/rsschool-cv/cv
